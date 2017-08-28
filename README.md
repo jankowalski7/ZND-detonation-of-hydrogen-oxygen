@@ -1,0 +1,1 @@
+# ZND-detonation-of-hydrogen-oxygen
